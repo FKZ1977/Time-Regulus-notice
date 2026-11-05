@@ -1,1 +1,1 @@
-# Time-Regulus-notice
+# Time-Regulus-news
